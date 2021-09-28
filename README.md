@@ -1,1 +1,0 @@
-# magicx-mod-pages
